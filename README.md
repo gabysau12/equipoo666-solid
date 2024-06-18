@@ -1,0 +1,1 @@
+# equipoo666-solid
